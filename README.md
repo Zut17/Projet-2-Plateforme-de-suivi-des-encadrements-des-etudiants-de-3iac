@@ -1,1 +1,0 @@
-# Projet-2---Plateforme-de-suivi-des-encadrements-des--tudiants-de-3iac
